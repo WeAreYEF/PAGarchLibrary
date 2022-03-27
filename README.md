@@ -1,4 +1,4 @@
-#  #PAGarchLibrary - Pagirinya Architecture Library
+# PAGarchLibrary - Pagirinya Architecture Library
 
 ## Partners
 
