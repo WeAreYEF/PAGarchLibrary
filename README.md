@@ -1,4 +1,7 @@
 # PAGarchLibrary - Pagirinya Architecture Library
+## PAG - stands for pagirinya
+## arch - stands for architecture
+## library - 
 
 ## Partners
 
