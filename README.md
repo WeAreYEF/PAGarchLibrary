@@ -5,6 +5,8 @@
 *architecture* is the art and technique of designing and building as distiquished from the skills associated with construction.
 
 *library* - is a collection of resources in avarriety of formats.but for this case we are looking at the architectural format.
+
+*Architecture library* is a learning lab for mult-disciplinary study of the built environment, providing hybrid collections of prints and digital materials
 # objectives
 ## Partners
 
