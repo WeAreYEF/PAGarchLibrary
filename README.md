@@ -4,7 +4,7 @@
 ## arch - stands for architecture
 *architecture* is the art and technique of designing and building as distiquished from the skills associated with construction.
 
-*library* - is a collection of resources in avarriety of formats.
+*library* - is a collection of resources in avarriety of formats.but for this case we are looking at the architectural format.
 
 ## Partners
 
