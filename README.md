@@ -8,6 +8,7 @@
 
 *Architecture library* is a learning lab for mult-disciplinary study of the built environment, providing hybrid collections of prints and digital materials
 # objectives
+- To provide adequate studies towards establishing an architecture that will shelter and cater for the needs of the internally displaced people,in this case the youths are trained with the resource on how to solve architectural problems in the local ways using the available resources.
 ## Partners
 
 | r0g Agency | ASKnet  | YEF |
