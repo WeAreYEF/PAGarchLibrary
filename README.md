@@ -13,7 +13,7 @@
 - To reflect on stories about architecture and design of refugee camps, including urban designs,shelters,toilets and opinions about designs for the aid of camps.
 # launch of PAGarchLibrary
 The library was launched on **19th/Feb/2022**at The Youth Empowerment Foundation (YEF),attended by over **50**people.
-The diginitories present at the launch were the representative from UNHCR Mr vitali,the representative from R0g ,Mr Steven kovarts,local representatives,the RWC2 pagirinya refugee settlement,Mr obulejo martin, political leaders,the chairman LC3 dzapi subcounty and students of pagirinya secondary school.
+The diginitories present at the launch were the representative from UNHCR Mr vitali,the representative from R0g ,Mr Steven kovarts,local representatives,the RWC2 pagirinya refugee settlement,Mr obulejo martin, political leaders,the chairman LC3 dzapi subcounty,The DPC, pagirinya police station and students of pagirinya secondary school.
 ## Partners
 
 | r0g Agency | ASKnet  | YEF |
