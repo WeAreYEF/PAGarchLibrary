@@ -10,6 +10,7 @@
 # objectives
 - To provide adequate studies towards establishing an architecture that will shelter and cater for the needs of the internally displaced people,in this case the youths are trained with the resource on how to solve architectural problems in the local ways using the available resources.
 ![](images/utlibry.jpg)
+  *Photo credit*:**Allan amanyara**
 - To also provide a resource for architects with in and outside the camp to research and improve on their architectural knowledge.
 - To reflect on stories about architecture and design of refugee camps, including urban designs,shelters,toilets and opinions about designs for the aid of camps.
 # launch of PAGarchLibrary
@@ -34,6 +35,7 @@ He appealed the refugee Youths and host community to take advantage of the archi
 
 **Hon. Ondoga**,the Youthful Local council chairman of the Dzaipi sub-county in which Pagirinya refugee settlement is situated was one of the guests who graced the PAGarchLib launch. He too was amazed at the idea of creating such a unique library to inspire young people to be proactive in the community. He stated that for a community or a country to develop, it needs to have creative and impact-oriented young people. He rallied youth to make the best use of the library to gain the extra knowledge and inspiration that they would never get within the area. He appealed for the services to be open to the youth from the host community so that their talents are tapped for positive community impact and peaceful coexistence. He promised to cooperate with YEF for the necessary support to ensure the success of the project.
 ![](images/IMG_20220403_133939_699.jpg)
+ *Photo credit*: **Allan amanyara**
 The district police commander pagirinya police post was aldo present during the launch.
 ![](images/dpcgivingspeech.jpg)
 *Photo*:by **Allan amanyara**
