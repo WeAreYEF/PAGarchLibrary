@@ -32,7 +32,7 @@ Hon. Ondoga, the Youthful Local council chairman of the Dzaipi sub-county in whi
 
 
 **There are over 80+** Architecture, arts, and photography books were donated by Stephen Kovats and friends from Germany to help improve the architectural knowledge of the young people in the Pagirinya refugee settlement and beyond. The Library serves as a resource center for young people to access knowledge, get inspiration, ideas, and resources on architecture, art, photography, and media documentation.
-For more check the book list in the link
+For more check the book list in the link [list](books-list.md)
 
 
 
