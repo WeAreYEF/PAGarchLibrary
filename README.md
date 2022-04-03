@@ -21,7 +21,7 @@ The diginitories present at the launch were the representative from UNHCR Mr vit
 On behalf of **UNHCR Uganda**,Mr vitali applauded YEF and R0g(agency for open culture and critical transformation)for such innovative approach to eradicating community challenges.
 ![](images/IMG_20220403_123424_227.jpg)
 
-He says the library will support the young refugees to be creative and develop their skills through reading architectural stories of other successful people in the industry and get inspirations from it.He added that the project Will help in filling the knowledge gap since the young people can come together and develop ideas the world so desperately needs and contribute to the development of the community and UNHCR will try to lobby support for this kind of initiative.He appealed the refugee Youths and host community to take advantage of the architectural library and the training space to enhance their skills for employment and enterpreneurship.
+He says the library will support the young refugees to be creative and develop their skills through reading architectural stories of other successful people in the industry and get inspirations from it.He added that the project Will help in filling the knowledge gap since the young people can come together and develop ideas the world so desperately needs and contribute to the development of the community and UNHCR will try to lobby support for this kind of initiative.He appealed the refugee Youths and host community to take advantage of the architectural library  to enhance their skills for employment and enterpreneurship.
 ## Partners
 
 | r0g Agency | ASKnet  | YEF |
