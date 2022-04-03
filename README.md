@@ -14,7 +14,8 @@
 - To reflect on stories about architecture and design of refugee camps, including urban designs,shelters,toilets and opinions about designs for the aid of camps.
 # launch of PAGarchLibrary
 
- ![](images/IMG_20220403_123403_574.jpg)                
+ ![](images/IMG_20220403_123403_574.jpg) 
+   *Photo credit* **Allan amanyara**             
 
 The library was launched on **19th/Feb/2022** at The Youth Empowerment Foundation (YEF),attended by over **50**people.
 The diginitories present at the launch were the representative from UNHCR Mr vitali,the representative from R0g ,Mr Steven kovarts,local representatives,the RWC2 pagirinya refugee settlement,Mr obulejo martin, political leaders,the chairman LC3 dzapi subcounty,The DPC, pagirinya police station and students of pagirinya secondary school.
@@ -26,7 +27,7 @@ He says the library will support the young refugees to be creative and develop t
 He added that the project Will help in filling the knowledge gap since the young people can come together and develop ideas the world so desperately needs and contribute to the development of the community and UNHCR will try to lobby support for this kind of initiative.
 He appealed the refugee Youths and host community to take advantage of the architectural library  to enhance their skills for employment and enterpreneurship.
 ![](images/IMG_20220403_123430_913.jpg)
-
+ *Photo credit* **Allan amanyara**
 
 
 **Hon. Ondoga**,the Youthful Local council chairman of the Dzaipi sub-county in which Pagirinya refugee settlement is situated was one of the guests who graced the PAGarchLib launch. He too was amazed at the idea of creating such a unique library to inspire young people to be proactive in the community. He stated that for a community or a country to develop, it needs to have creative and impact-oriented young people. He rallied youth to make the best use of the library to gain the extra knowledge and inspiration that they would never get within the area. He appealed for the services to be open to the youth from the host community so that their talents are tapped for positive community impact and peaceful coexistence. He promised to cooperate with YEF for the necessary support to ensure the success of the project.
