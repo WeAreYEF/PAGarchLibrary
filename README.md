@@ -32,8 +32,9 @@ He appealed the refugee Youths and host community to take advantage of the archi
 ![](images/IMG_20220403_133939_699.jpg)
 
 
-**There are over 80+** Architecture, arts, and photography books were donated by Stephen Kovats and friends from Germany to help improve the architectural knowledge of the young people in the Pagirinya refugee settlement and beyond. The Library serves as a resource center for young people to access knowledge, get inspiration, ideas, and resources on architecture, art, photography, and media documentation.
+**There are over 80+** Architecture, arts, and photography books  donated by Stephen Kovats and friends from Germany to help improve the architectural knowledge of the young people in the Pagirinya refugee settlement and beyond. The Library serves as a resource center for young people to access knowledge, get inspiration, ideas, and resources on architecture, art, photography, and media documentation.
 For more check the book list in the link [list](books-list.md)
+**Some of the happiest moments during the launch of the Libray
 
 
 
