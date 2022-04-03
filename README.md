@@ -19,6 +19,7 @@
 The library was launched on **19th/Feb/2022** at The Youth Empowerment Foundation (YEF),attended by over **50**people.
 The diginitories present at the launch were the representative from UNHCR Mr vitali,the representative from R0g ,Mr Steven kovarts,local representatives,the RWC2 pagirinya refugee settlement,Mr obulejo martin, political leaders,the chairman LC3 dzapi subcounty,The DPC, pagirinya police station and students of pagirinya secondary school.
 On behalf of **UNHCR Uganda**,Mr vitali applauded YEF and R0g(agency for open culture and critical transformation)for such innovative approach to eradicating community challenges.
+![](images/vitaland steve.jpg)
 ![](images/IMG_20220403_123424_227.jpg)
 ![](images/mrvitalianded.jpg)
 He says the library will support the young refugees to be creative and develop their skills through reading architectural stories of other successful people in the industry and get inspirations from it.
