@@ -30,7 +30,7 @@ He appealed the refugee Youths and host community to take advantage of the archi
 
 **Hon. Ondoga**,the Youthful Local council chairman of the Dzaipi sub-county in which Pagirinya refugee settlement is situated was one of the guests who graced the PAGarchLib launch. He too was amazed at the idea of creating such a unique library to inspire young people to be proactive in the community. He stated that for a community or a country to develop, it needs to have creative and impact-oriented young people. He rallied youth to make the best use of the library to gain the extra knowledge and inspiration that they would never get within the area. He appealed for the services to be open to the youth from the host community so that their talents are tapped for positive community impact and peaceful coexistence. He promised to cooperate with YEF for the necessary support to ensure the success of the project.
 ![](images/IMG_20220403_133939_699.jpg)
-![](images/vitaland steve.jpg)
+
 
 **There are over 80+** Architecture, arts, and photography books  donated by Stephen Kovats and friends from Germany to help improve the architectural knowledge of the young people in the Pagirinya refugee settlement and beyond. The Library serves as a resource center for young people to access knowledge, get inspiration, ideas, and resources on architecture, art, photography, and media documentation.
 For more check the book list in the link [list](books-list.md)
