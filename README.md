@@ -47,6 +47,7 @@ The district police commander pagirinya police post was aldo present during the 
 For more check the book list in the link [list](books-list.md)
 
 Some of the happiest moments during the launch of the Libray
+![](images/africansytle.jpg)
 
 ![](images/group.jpg) ![](images/group.jpg)
  *Photo credit*:**Allan amanyara**
