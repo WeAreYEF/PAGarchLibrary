@@ -13,6 +13,7 @@
   *Photo credit*:**Allan amanyara**
 - To also provide a resource for architects with in and outside the camp to research and improve on their architectural knowledge.
 - To teach innovative creations using raspberry pi.
+![](images/rasberrypi.jpg)
 - To reflect on stories about architecture and design of refugee camps, including urban designs,shelters,toilets and opinions about designs for the aid of camps.
 ![](images/literyarchitecture.jpg)
 - To also introduce the youths in the refugee resettlement to electronic architecture,most youths in the camp used to believe architecture was only in construction,but lately surprised to discover from the studies of books in the library.
