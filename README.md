@@ -14,7 +14,7 @@
 - To also provide a resource for architects with in and outside the camp to research and improve on their architectural knowledge.
 - To reflect on stories about architecture and design of refugee camps, including urban designs,shelters,toilets and opinions about designs for the aid of camps.
 # launch of PAGarchLibrary
-![](images/arctandscholatism.jpg)
+![](images/arctandscholatism.jpg)![](images/basiccarpentry.jpg)
 
  ![](images/IMG_20220403_123403_574.jpg) 
    *Photo credit* **Allan amanyara**             
