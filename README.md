@@ -59,6 +59,8 @@ Some of the happiest moments during the launch of the Libray
 
 ![](images/group.jpg)![](images/modernarchitecture.jpg)  ![](images/group.jpg)
  *Photo credit*:**Allan amanyara**
+PAGarchitecture library attendant
+![](images/PAgarchiteturelibrayattendant.jpg)
 
 
 
