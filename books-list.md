@@ -19,7 +19,7 @@
 9. Architekt- Stadtplaner 1884- 1974	Willem Marinus Dudok
 			
 10. Arctic Perspective Cahier No.1 	Andreas Muller
- 			
+ 		
 11. Arion 16	Kassak Lajos
 			
 12. Assemblage: A critical Journal of Architecture and Design Culture 	The MIT Press 		4	Architecture
