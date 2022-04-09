@@ -1,10 +1,10 @@
 # **Tittle** PAGarchLibrary - Pagirinya Architecture Library
 ## PAG - stands for pagirinya
 *Pagirinya* is a refugee camp in eastern adjumani district in northern Uganda.
-## arch - stands for architecture
-*architecture* is the art and technique of designing and building as distiquished from the skills associated with construction.
+## Arch - stands for architecture
+*Architecture* is the art and technique of designing and building as distiquished from the skills associated with construction.
 
-*library* - is a collection of resources in avarriety of formats.but for this case we are looking at the architectural format.
+*Library* - is a collection of resources in avarriety of formats.but for this case we are looking at the architectural format.
 
 *Architecture library* is a learning lab for mult-disciplinary study of the built environment, providing hybrid collections of prints and digital materials
 # for all images link [books](images/allimagesofthebooks.jpg)
