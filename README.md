@@ -51,7 +51,8 @@ The district police commander pagirinya police post was aldo present during the 
 
 
 **There are over 80+** Architecture, arts, and photography books  donated by Stephen Kovats and friends from Germany to help improve the architectural knowledge of the young people in the Pagirinya refugee settlement and beyond. The Library serves as a resource center for young people to access knowledge, get inspiration, ideas, and resources on architecture, art, photography, and media documentation.
-For more check the book list in the link [list](Book-list.csv)
+
+For more check the book list in the link [LIST of BOOKS](Book-list.csv)
 
 Some of the happiest moments during the launch of the Libray
 ![](images/africansytle.jpg)
