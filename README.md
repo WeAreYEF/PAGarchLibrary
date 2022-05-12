@@ -61,9 +61,12 @@ Some of the happiest moments during the launch of the Libray
 
 ![](images/group.jpg)![](images/modernarchitecture.jpg)  ![](images/group.jpg)
  *Photo credit*:**Allan amanyara**
-PAGarchitecture library attendant
-[Librarian-introduction](Introduction-of-the-librarian.md)
-![](images/PAgarchiteturelibrayattendant.jpg)
+
+# PAGarchitecture library attendant
+## Bako scovia 
+
+For more information click>>>[Librarian-introduction](Introduction-of-the-librarian.md)
+
 
 
 
