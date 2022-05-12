@@ -8,7 +8,7 @@ When she discovered about **The Youth Empowerment Foundation** (**YEF**) and it'
 ![](images/IMG_20220512_205503_254.jpg)
 *Photo credit*:**IRA Emmanuel**
 
-She is discovering alot of new things at **pagirinya satelite space** especially the architecture library,she is also undertaking basic computer training through peer to peer learning.
+She is discovering alot of new things at **pagirinya satelite space** especially the architecture library,she is also undertaking basic computer training through **peer to peer learning**.
 ![](images/IMG_20220513_004723_158.jpg)
 
 Baako wants to **inspire** other **refugee girls** to discover themselves and join the **open peer to peer learning process** at **YEF** and most importantly take the advantage of the library to learn and share ideas in **art**, **architecture**, **photography** and **technology**.
