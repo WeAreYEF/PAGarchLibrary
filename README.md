@@ -19,9 +19,12 @@
 ![](images/literyarchitecture.jpg)
 - To also introduce the youths in the refugee resettlement to electronic architecture,most youths in the camp used to believe architecture was only in construction,but lately surprised to discover from the studies of books in the library.
 ![](images/telecommunications.jpg)
+   *Photo credit*:**IRA Emmanuel**
 # launch of PAGarchLibrary
-![](images/arctandscholatism.jpg)![](images/basiccarpentry.jpg)
-
+![](images/arctandscholatism.jpg)
+   *Photo credit*:**IRA Emmanuel**
+![](images/basiccarpentry.jpg) 
+  *Photo credit*:**IRA Emmanuel**       
  ![](images/IMG_20220403_123403_574.jpg) 
    *Photo credit* **Allan amanyara**             
 
