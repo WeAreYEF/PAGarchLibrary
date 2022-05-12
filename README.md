@@ -1,12 +1,12 @@
 # **Tittle** PAGarchLibrary - Pagirinya Architecture Library
-## PAG - stands for pagirinya
-*Pagirinya* is a refugee camp in eastern adjumani district in northern Uganda.
-## Arch - stands for architecture
-*Architecture* is the art and technique of designing and building as distiquished from the skills associated with construction.
+## PAG  stands for pagirinya
+***Pagirinya*** is a refugee camp in eastern adjumani district in northern Uganda.
+## Arch  stands for architecture
+***Architecture*** is the art and technique of designing and building as distiquished from the skills associated with construction.
 
-*Library* - is a collection of resources in avarriety of formats.but for this case we are looking at the architectural format.
+***Library***  is a collection of resources in avarriety of formats.but for this case we are looking at the architectural format.
 
-*Architecture library* is a learning lab for mult-disciplinary study of the built environment, providing hybrid collections of prints and digital materials
+***Architecture library*** is a learning lab for mult-disciplinary study of the built environment, providing hybrid collections of prints and digital materials
 # for all images link [books](images/allimagesofthebooks.jpg)
 # objectives
 - To provide adequate studies towards establishing an architecture that will shelter and cater for the needs of the internally displaced people,in this case the youths are trained with the resource on how to solve architectural problems in the local ways using the available resources.
@@ -47,6 +47,9 @@ He appealed the refugee Youths and host community to take advantage of the archi
 The **district police commander** pagirinya police post was aldo present during the launch.
 ![](images/dpcgivingspeech.jpg)
 *Photo*:by **Allan amanyara**
+
+
+He called upon the youths,both refugees and host community to desist from bad peers citing the example of youths who sit under shades idling and abuse drugs.He emphasized them to use the precious architecture library for new discoveries in architecture to make pagirinya abetter place to live.However he sounded a security warning of the youths who would move to the library with a negative motive of stealing the library resources,urged that he is too ready to exercise the law for such habbits.
 
 
 
