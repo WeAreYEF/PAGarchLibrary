@@ -48,10 +48,7 @@ The **district police commander** pagirinya police post was aldo present during 
 ![](images/dpcgivingspeech.jpg)
 *Photo*:by **Allan amanyara**
 
-
-He called upon the youths,both refugees and host community to desist from bad peers citing the example of youths who sit under shades idling and abuse drugs.He emphasized them to use the precious architecture library for new discoveries in architecture to make pagirinya abetter place to live.However he sounded a security warning of the youths who would move to the library with a negative motive of stealing the library resources,urged that he is too ready to exercise the law for such habbits.
-
-
+He called upon the youths,both **refugees** and **host community** to desist from **bad peers** citing the example of youths who sit under shades **idling** and **abuse drugs**.He emphasized them to use the **precious architecture library** for new discoveries in architecture to make pagirinya abetter place to live.However he sounded a **security warning** to the youths who would move to the library with a **negative motive** of **stealing** the library resources,urged that he is too ready to exercise the **law** for such habbits.
 
 **There are over 80+** *Architecture*, *arts*, and *photography* books  donated by **Mr Stephen Kovats and friends from Germany** to help improve the architectural knowledge of the young people in the Pagirinya refugee settlement and beyond. The Library serves as a resource center for young people to access **knowledge**, get **inspiration**, **ideas**, and **resources** on architecture, art, photography, and media documentation.
 
