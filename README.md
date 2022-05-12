@@ -64,6 +64,7 @@ Some of the happiest moments during the launch of the Libray
 
 # PAGarchitecture library attendant
 ## Bako scovia 
+![](images/PAgarchiteturelibrayattendant.jpg)
 
 For more information click>>>[Librarian-introduction](Introduction-of-the-librarian.md)
 
