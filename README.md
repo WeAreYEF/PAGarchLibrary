@@ -30,7 +30,7 @@
 ![](images/basiccarpentry.jpg) 
   *Photo credit*:**IRA Emmanuel**       
  ![](images/IMG_20220403_123403_574.jpg) 
-   *Photo credit* **Allan amanyara**             
+   *Photo credit*:**Allan amanyara**             
 
 The initiative from **R0g** through **#ASKnet** to pagirinya satelite was launched on **19th/Feb/2022** at The Youth Empowerment Foundation **(YEF)**,attended by over **50**people.
 The diginitories present at the launch were the representative from **UNHCR** **Mr vitali**,the representative from **R0g ,Mr Steven kovarts**,**local representatives**,the **RWC2** pagirinya refugee settlement,**Mr obulejo martin**, political leaders,**the chairman LC3 dzapi subcounty**,The **DPC**, pagirinya police station and **students** of pagirinya secondary school.
@@ -53,7 +53,7 @@ He appealed the refugee Youths and host community to take advantage of the archi
 
 The **district police commander** pagirinya police post was aldo present during the launch.
 ![](images/dpcgivingspeech.jpg)
-*Photo*:by **Allan amanyara**
+*Photo credit*: **Allan amanyara**
 
 He called upon the youths,both **refugees** and **host community** to desist from **bad peers** citing the example of youths who sit under shades **idling** and **abuse drugs**.He emphasized them to use the **precious architecture library** for new discoveries in architecture to make pagirinya abetter place to live.However he sounded a **security warning** to the youths who would move to the library with a **negative motive** of **stealing** the library resources,urged that he is too ready to exercise the **law** for such habbits.
 
