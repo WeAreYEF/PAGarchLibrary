@@ -35,7 +35,9 @@
 The initiative from **R0g** through **#ASKnet** to pagirinya satelite was launched on **19th/Feb/2022** at The Youth Empowerment Foundation **(YEF)**,attended by over **50**people.
 The diginitories present at the launch were the representative from **UNHCR** **Mr vitali**,the representative from **R0g ,Mr Steven kovarts**,**local representatives**,the **RWC2** pagirinya refugee settlement,**Mr obulejo martin**, political leaders,**the chairman LC3 dzapi subcounty**,The **DPC**, pagirinya police station and **students** of pagirinya secondary school.
 On behalf of **UNHCR Uganda**,**Mr vitali** applauded **YEF** and **R0g**(**agency for open culture and critical transformation**)for such **innovative** approach to **eradicating** community challenges.
+
 [](https://github.com/WeAreYEF/PAGarchLibrary.wiki.git)
+
 ![](images/IMG_20220403_123424_227.jpg)
 ![](images/mrvitalianded.jpg)
  *Photo credit* **Allan amanyara**
@@ -77,7 +79,7 @@ Some of the happiest moments during the launch of the Libray
 
 For more information click>>>[**Librarian-introduction**](Introduction-of-the-librarian.md)
 
-[Wikis](f1fcc4b)
+
 
 
 
