@@ -3,10 +3,10 @@
 ***Pagirinya*** is a refugee camp in eastern adjumani district in northern Uganda.
 ## Arch  stands for architecture
 ***Architecture*** is the art and technique of designing and building as distiquished from the skills associated with construction.
-![](images/IMG_20220513_201310_570.jpg)
 
 ***Library***  is a collection of resources in avarriety of formats.but for this case we are looking at the architectural format.
 ![](images/IMG_20220513_201317_903.jpg)
+   *Photo credit*:**IRA Emmanuel**
 
 ***Architecture library*** is a learning lab for mult-disciplinary study of the built environment, providing hybrid collections of prints and digital materials
 # for all images link [books](images/allimagesofthebooks.jpg)
