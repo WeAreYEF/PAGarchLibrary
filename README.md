@@ -77,7 +77,6 @@ Some of the happiest moments during the launch of the Libray
 
 For more information click>>>[**Librarian-introduction**](Introduction-of-the-librarian.md)
 
-[Wikis](https://github.com/WeAreYEF/PAGarchLibrary.wiki.git)
 
 
 
