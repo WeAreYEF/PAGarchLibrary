@@ -6,6 +6,7 @@
 ![](images/IMG_20220513_201310_570.jpg)
 
 ***Library***  is a collection of resources in avarriety of formats.but for this case we are looking at the architectural format.
+![](images/IMG_20220513_201317_903.jpg)
 
 ***Architecture library*** is a learning lab for mult-disciplinary study of the built environment, providing hybrid collections of prints and digital materials
 # for all images link [books](images/allimagesofthebooks.jpg)
