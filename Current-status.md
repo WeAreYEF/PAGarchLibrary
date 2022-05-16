@@ -43,8 +43,10 @@ He is a regular reader at [PAGarchlib](https://github.com/WeAreYEF/PAGarchLibrar
 *Senior four (4) leaver*
 ## School
 *Pagirinya secondary school*
-#Tel:.
-She the current library attendant for [PAGarchlib](https://github.com/WeAreYEF/PAGarchLibrary) .For more details, open the link
+
+## Tel:.
+
+She the current library attendant for [PAGarchlib](https://github.com/WeAreYEF/PAGarchLibrary) .For more details about her, open the link >>> [PAGarchlib attendant](https://github.com/WeAreYEF/PAGarchLibrary/blob/main/Introduction-of-the-librarian.md)
 # 5.Innocent Gama
 ![](images/IMG_20220516_194522_841.jpg)
 ## Camp
