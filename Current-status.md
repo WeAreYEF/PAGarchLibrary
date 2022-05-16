@@ -12,6 +12,19 @@ We were able to develop a **moveable bookshelf** which can handle storage of all
 ![](images/ELI.jpg)
 ![](images/IMG_20220516_193925_996.jpg)
 ![](images/IMG_20220516_194522_841.jpg)
+# maridio Janet
+
+**Camp**: pagirinya refugee camp
+
+**Block**:B
+
+**Education**:Senior four (4) 
+
+**School**: pagirinya secondary school
+
+**Tell**:+256760166326
+
+She is a student leader at pagirinya secondary school,so excited having the opportunity to access PAGarchlibrary where she got courage to dismiss the believe that architecture is only for boy's that what boys can do, girls can also do, "However Maridio also lamented that the resource is going to accelerate access to knowledge for the young people of her age instead of staying iddle".She also tasked herself as a student leader to sensitize other students especially her fellow girls to join her at the space to utilize the resource,other than staying iddle.
 ![](images/IMG_20220516_224205_512.jpg)
 ![](images/IMG_20220516_195047_816.jpg)
 ![](images/IMG_20220516_195958_140.jpg)
