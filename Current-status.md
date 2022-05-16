@@ -41,6 +41,7 @@ She is a student leader at pagirinya secondary school,so excited having the oppo
 ## School
 *Pagirinya secondary school*
 ## Tell:.**+256785609501**
+He is a design artist,the occupation he resumed after his senior four due to lack of funding to further his studies,but since he was good in fine art ,he resorted to applying the skills obtained from school in fine art lessons,He is greatful for the opportunity brought by The Youth Empowerment Foundation **(YEF)**,as the resource is well equiped with the books 📚 of his field of interest."I am also requesting for peer to peer computer training lessons to go hand in hand with the utilization of the library resources,big up's **YEF**.
 
 # 8.Tarapkwe Concy
 ![](images/IMG_20220516_195958_140.jpg)
