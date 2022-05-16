@@ -17,6 +17,16 @@ We were able to develop a **moveable bookshelf** which can handle storage of all
 ![](images/IMG_20220516_193925_996.jpg)
 # 5.Innocent Gama
 ![](images/IMG_20220516_194522_841.jpg)
+## Camp
+*Pagirinya refugee camp*
+## Block
+*D*
+## Education
+*Senior three (3)*
+## School
+*Pagirinya secondary school*
+## Tell:.**+256760206291**
+Like his friend Opira Jonathan,he is also an artist and aregular reader at #PAGarchlib,besides participating in the sketching of how other designs and flowers can be applied to improve the satelite space.He also attends to the peer to peer learning of the basic computer skills.
 # 6. maridio Janet
 ![](images/IMG_20220516_224205_512.jpg)
 ## Camp 
