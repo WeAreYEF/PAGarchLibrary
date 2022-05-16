@@ -35,6 +35,16 @@ She is a first time reader, learnt how to build without burnt bricks (ramped ear
 He is a regular reader at [PAGarchlib](https://github.com/WeAreYEF/PAGarchLibrary),"The books inspire us alot,on how to build beautiful houses for staying and also for public use like halls and classrooms"."My favorite book is that of **Francis kere, RADICALLY SIMPLE"**
 # 4.Baako Scovia
 ![](images/IMG_20220516_193925_996.jpg)
+## Camp
+*Pagirinya refugee camp*
+## Block
+- 
+## Education
+*Senior four (4) leaver
+## School
+*Pagirinya secondary school
+#Tel:.
+She the current library attendant for [PAGarchlib](https://github.com/WeAreYEF/PAGarchLibrary) .For more details, open the link
 # 5.Innocent Gama
 ![](images/IMG_20220516_194522_841.jpg)
 ## Camp
