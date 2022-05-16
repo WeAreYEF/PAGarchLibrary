@@ -18,6 +18,7 @@ We were able to develop a **moveable bookshelf** which can handle storage of all
 # 5.Innocent Gama
 ![](images/IMG_20220516_194522_841.jpg)
 # 6. maridio Janet
+![](images/IMG_20220516_224205_512.jpg)
 ## Camp 
 *pagirinya refugee camp*
 ## Block
@@ -27,10 +28,8 @@ We were able to develop a **moveable bookshelf** which can handle storage of all
 ## School 
 *pagirinya secondary school*
 ## Tel:. **+256760166326**
-
 She is a student leader at pagirinya secondary school,so excited having the opportunity to access PAGarchlibrary where she got courage to dismiss the believe that architecture is only for boy's that what boys can do, girls can also do, "However Maridio also lamented that the resource is going to accelerate access to knowledge for the young people of her age instead of staying iddle".She also tasked herself as a student leader to sensitize other students especially her fellow girls to join her at the space to utilize the resource,other than staying iddle.She applauded The Youth Empowerment Foundation **(YEF)** for such a great opportunity and urged them give them a chance to peer to peer basic computer skills on weekends for them to be able to apply the knowledge acquired in a digital way since the world of today is all about computer.much 💕 **YEF**.
  
-![](images/IMG_20220516_224205_512.jpg)
 # 7.Opira Jonathan
 ## Camp
 *Pagirinya refugee camp*
