@@ -12,10 +12,15 @@ We were able to develop a **moveable bookshelf** which can handle storage of all
 # 2.Abio Kevin
 ![](images/IMG_20220516_192034_696.jpg)
 ## Camp
+*Pagirinya refugee camp*
 ## Block
+*D*
 ## Education
+*Senior three (3)*
 ## School
-## Tel:.
+*Pagirinya secondary school*
+## Tel:.**+256760057160**
+She is a first time reader, learnt how to build without burnt bricks (ramped earth tech) and got inspired to work hard and become an architectural engineer,she discovered from [PAGarchilib](https://github.com/WeAreYEF/PAGarchLibrary) that women can also architectural positions.
 # 3.Moses Eli
 ![](images/ELI.jpg)
 ## Camp
