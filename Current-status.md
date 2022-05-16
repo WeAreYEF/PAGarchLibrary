@@ -19,10 +19,15 @@ We were able to develop a **moveable bookshelf** which can handle storage of all
 # 3.Moses Eli
 ![](images/ELI.jpg)
 ## Camp
+*Pagirinya refugee camp*
 ## Block
+*C*
 ## Education
+*Senior three (3)*
 ## School
-## Tel:.
+*Pagirinya secondary school*
+## Tel:.**+256773747132**
+He is a regular reader at [PAGarchlib](https://github.com/WeAreYEF/PAGarchLibrary),"The books inspire us alot,on how to build beautiful houses for staying and also for public use like halls and classrooms"."My favorite book is that of **Francis kere, RADICALLY SIMPLE"**
 # 4.Baako Scovia
 ![](images/IMG_20220516_193925_996.jpg)
 # 5.Innocent Gama
