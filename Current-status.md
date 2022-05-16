@@ -11,8 +11,18 @@ We were able to develop a **moveable bookshelf** which can handle storage of all
 ![](images/IMG_20220516_092853_842.jpg)
 # 2.Abio Kevin
 ![](images/IMG_20220516_192034_696.jpg)
-# 3.Eli
+## Camp
+## Block
+## Education
+## School
+## Tel:.
+# 3.Moses Eli
 ![](images/ELI.jpg)
+## Camp
+## Block
+## Education
+## School
+## Tel:.
 # 4.Baako Scovia
 ![](images/IMG_20220516_193925_996.jpg)
 # 5.Innocent Gama
@@ -38,7 +48,7 @@ Like his friend Opira Jonathan,he is also an artist and aregular reader at [PAGa
 ## School 
 *pagirinya secondary school*
 ## Tel:. **+256760166326**
-She is a student leader at pagirinya secondary school,so excited having the opportunity to access PAGarchlibrary where she got courage to dismiss the believe that architecture is only for boy's that what boys can do, girls can also do, "However Maridio also lamented that the resource is going to accelerate access to knowledge for the young people of her age instead of staying iddle".She also tasked herself as a student leader to sensitize other students especially her fellow girls to join her at the space to utilize the resource,other than staying iddle.She applauded The Youth Empowerment Foundation **(YEF)** for such a great opportunity and urged them give them a chance to peer to peer basic computer skills on weekends for them to be able to apply the knowledge acquired in a digital way since the world of today is all about computer.much 💕 **YEF**.
+She is a student leader at pagirinya secondary school,so excited having the opportunity to access [PAGarchlib](https://github.com/WeAreYEF/PAGarchLibrary) where she got courage to dismiss the believe that architecture is only for boy's that what boys can do, girls can also do, "However Maridio also lamented that the resource is going to accelerate access to knowledge for the young people of her age instead of staying iddle".She also tasked herself as a student leader to sensitize other students especially her fellow girls to join her at the space to utilize the resource,other than staying iddle.She applauded The Youth Empowerment Foundation **(YEF)** for such a great opportunity and urged them give them a chance to peer to peer basic computer skills on weekends for them to be able to apply the knowledge acquired in a digital way since the world of today is all about computer.much 💕 **YEF**.
  
 # 7.Opira Jonathan
 ![](images/IMG_20220516_195047_816.jpg)
