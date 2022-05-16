@@ -42,6 +42,7 @@ She is a student leader at pagirinya secondary school,so excited having the oppo
 ## Tell:.**+256785609501**
 ![](images/IMG_20220516_195047_816.jpg)
 # 8.Tarapkwe Concy
+![](images/IMG_20220516_195958_140.jpg)
 ## Camp
 *Pagirinya refugee camp*
 ## Block
@@ -52,7 +53,7 @@ She is a student leader at pagirinya secondary school,so excited having the oppo
 *Pagirinya secondary school*
 ## Tell:. **+256770600173**
 She is a first time reader:"I enjoy the place so much,the books are many but the ones I read,I really like them.i have learnt to decorate and I have joined the artists to put our imaginations into drawing,I would also love 💕 to join the peer to peer computer training lessons on weekends".
-![](images/IMG_20220516_195958_140.jpg)
+
 
 
 
