@@ -32,6 +32,15 @@ She is a student leader at pagirinya secondary school,so excited having the oppo
  
 ![](images/IMG_20220516_224205_512.jpg)
 # 7.Opira Jonathan
+## Camp
+*Pagirinya refugee camp*
+## Block
+*B*
+## Education
+*Senior four(4) leaver*
+## School
+*Pagirinya secondary school*
+## Tell:.**+256785609501**
 ![](images/IMG_20220516_195047_816.jpg)
 # 8.Tarapkwe Concy
 ## Camp
