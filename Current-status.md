@@ -40,9 +40,9 @@ He is a regular reader at [PAGarchlib](https://github.com/WeAreYEF/PAGarchLibrar
 ## Block
 - 
 ## Education
-*Senior four (4) leaver
+*Senior four (4) leaver*
 ## School
-*Pagirinya secondary school
+*Pagirinya secondary school*
 #Tel:.
 She the current library attendant for [PAGarchlib](https://github.com/WeAreYEF/PAGarchLibrary) .For more details, open the link
 # 5.Innocent Gama
