@@ -24,7 +24,7 @@ We were able to develop a **moveable bookshelf** which can handle storage of all
 
 - Currently volunteering at The Youth Empowerment Foundation **(YEF)** in GitHub documentation.
 
-I would like to extend my great thanks to **r0g** on behalf of **YEF**(The Youth Empowerment Foundation) for funding this kind of innitiative, it's an initiative which will benefit generation after generation,applauds to **Mr Steven kovarts** and the friends who supported the idea and all those who are yet to add in the support.Not forgetting my great community Access to skills and knowledge network **(#ASKnet)** which is the supporting partner,which entrusted The Youth Empowerment Foundation **(YEF)** to implement this wonderful innitiative."long live the three giant partners,**r0g**,**ASKnet** and **YEF**".
+I would like to extend my great thanks to **r0g**(Agency for open culture and critical transformation) on behalf of **YEF**(The Youth Empowerment Foundation) for funding this kind of innitiative, it's an initiative which will benefit generation after generation,applauds to **Mr Steven kovarts** and the friends who supported the idea and all those who are yet to add in the support.Not forgetting my great community Access to skills and knowledge network **(#ASKnet)** which is the supporting partner,which entrusted The Youth Empowerment Foundation **(YEF)** to implement this wonderful innitiative."long live the three giant partners,**r0g**,**ASKnet** and **YEF**".
 
 
 # 2.Abio Kevin
