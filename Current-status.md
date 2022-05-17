@@ -40,7 +40,7 @@ I would like to extend my great thanks to **r0g** (Agency for open culture and c
 ## School
 *Pagirinya secondary school*
 ## Tel:.**+256760057160**
-She is a first time reader, learnt how to build without burnt bricks (ramped earth tech) and got inspired to work hard and become an architectural engineer,she discovered from [PAGarchilib](https://github.com/WeAreYEF/PAGarchLibrary) that women can also architectural positions.
+She is a first time reader, learnt how to build without burnt bricks (ramped earth tech) and got inspired to work hard and become an architectural engineer,she discovered from [PAGarchilib](https://github.com/WeAreYEF/PAGarchLibrary) that women can also architectural positions,an inspiration from the author of African style ![](images/africansytle.jpg) **Ed Angelika Taschen**
 # 3.Moses Eli
 ![](images/ELI.jpg)
 ## Camp
