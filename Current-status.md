@@ -24,7 +24,7 @@ We were able to develop a **moveable bookshelf** which can handle storage of all
 
 - Currently volunteering at The Youth Empowerment Foundation **(YEF)** in GitHub documentation.
 
-I am a frequent reader,at PAGarchlib,the space has alot of innovative books but at the moment I prefer concentrating on one ,which is **introduction to telecommunications and electronics**,reason being I am participating in an **open hardware maker** and I have a modular radio project of which they are mentoring me on.So my favorite book for now is 
+I am a frequent reader,at PAGarchlib,the space has alot of innovative books but at the moment I prefer concentrating on one ,which is **introduction to telecommunications and electronics**,reason being I am participating in an **open hardware maker** and I have a modular radio project of which they are mentoring me on.So my favorite book for now is ![](images/telecommunications.jpg).It helping research and note basics of modulation,here is the link to my project>>>
 
 I would like to extend my great thanks to **r0g** (Agency for open culture and critical transformation) on behalf of **YEF**(The Youth Empowerment Foundation) for lobbying funds for this kind of innitiative, it's an initiative which will benefit generation after generation,applauds to **Mr Steven kovarts** and the friends who supported the idea and all those who are yet to add in the support.Not forgetting my great community Access to skills and knowledge network **(#ASKnet)** which is the supporting partner,which entrusted The Youth Empowerment Foundation **(YEF)** to implement this wonderful innitiative."long live the three giant partners,**r0g**,**ASKnet** and **YEF**".
 
