@@ -9,6 +9,22 @@ We were able to develop a **moveable bookshelf** which can handle storage of all
 # reader's profiles and others
 # 1.Wafela Andrew (chardso)
 ![](images/IMG_20220516_092853_842.jpg)
+
+- GitHub participant
+
+- Hardware expert
+
+- lead expert
+
+- open hardware makers (participant)
+
+- member of #ASKnet
+
+- member of GIG (Global Innovation Gathering)
+
+- Currently volunteering at The Youth Empowerment Foundation **(YEF)** in GitHub documentation.
+
+
 # 2.Abio Kevin
 ![](images/IMG_20220516_192034_696.jpg)
 ## Camp
