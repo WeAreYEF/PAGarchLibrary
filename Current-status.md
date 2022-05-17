@@ -20,7 +20,7 @@ We were able to develop a **moveable bookshelf** which can handle storage of all
 
 - member of **ASKnet**
 
-- member of GIG (Global Innovation Gathering)
+- member of **GIG** (Global Innovation Gathering)
 
 - Currently volunteering at The Youth Empowerment Foundation **(YEF)** in GitHub documentation.
 
