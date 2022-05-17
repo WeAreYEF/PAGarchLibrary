@@ -78,7 +78,7 @@ She the current library attendant for [PAGarchlib](https://github.com/WeAreYEF/P
 ## School
 *Pagirinya secondary school*
 ## Tell:.**+256760206291**
-Like his friend Opira Jonathan,he is also an artist and aregular reader at [PAGarchlib](https://github.com/WeAreYEF/PAGarchLibrary),besides participating in the sketching of how other designs and flowers can be applied to improve the satelite space.He also attends to the peer to peer learning of the basic computer skills.
+Like his friend Opira Jonathan,he is also an artist and aregular reader at [PAGarchlib](https://github.com/WeAreYEF/PAGarchLibrary),besides participating in the sketching of how other designs and flowers can be applied to improve the satelite space.He also attends to the peer to peer learning of the basic computer skills."My favorite book is by title **time as an art** by **Walter Kaufman**" ![](images/timeisanart.jpg)
 # 6. maridio Janet
 ![](images/IMG_20220516_224205_512.jpg)
 ## Camp 
