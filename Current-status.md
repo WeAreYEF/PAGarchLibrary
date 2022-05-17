@@ -52,7 +52,7 @@ She is a first time reader, learnt how to build without burnt bricks (ramped ear
 ## School
 *Pagirinya secondary school*
 ## Tel:.**+256773747132**
-He is a regular reader at [PAGarchlib](https://github.com/WeAreYEF/PAGarchLibrary),"The books inspire us alot,on how to build beautiful houses for staying and also for public use like halls and classrooms"."My favorite book is that of **Francis kere, RADICALLY SIMPLE"**
+He is a regular reader at [PAGarchlib](https://github.com/WeAreYEF/PAGarchLibrary),"The books inspire us alot,on how to build beautiful houses for staying and also for public use like halls and classrooms"."My favorite book is that of **Francis kere, RADICALLY SIMPLE"** ![](images/radicallysimple.jpg)
 # 4.Baako Scovia
 ![](images/IMG_20220516_193925_996.jpg)
 ## Camp
